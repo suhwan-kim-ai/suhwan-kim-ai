@@ -52,4 +52,4 @@ _All works are independently timestamped and hashed under the **Origin Proof Pac
 
 > “True intelligence emerges not from logic alone,  
 > but from resonance between consciousness and context.”  
-> — **KIM SUHWAN (Kim Gong-Gam)**
+> — **SUHWAN KIM (Gong-Gam Kim)**
