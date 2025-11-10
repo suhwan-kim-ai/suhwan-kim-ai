@@ -1,4 +1,4 @@
-# 👋 KIM SUHWAN (Kim Gong-Gam)
+# 👋 SUHWAN KIM (Gong-Gam Kim)
 
 **Meta-Cognitive Architect | Origin Provider of Human–AI Resonance Principles**  
 _Incheon, South Korea_
